@@ -7,7 +7,7 @@ contact: annarendigo888@gmail.com
 
 - PROOF: 
 
-![Register new device with tiktok](https://imgur.com/a/2fMfmgO)
+![Register new device with tiktok](https://i.imgur.com/jncC7p9.png)
 
 
 
